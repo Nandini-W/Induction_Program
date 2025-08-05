@@ -23,3 +23,16 @@ Our day ended with us, given a chance, to experience how our live classes would 
 
 -The exciting lecture was then followed by a serious, yet truly important lecture by Dr. Priya Darshni on Universal human values. This lecture made me rethink about my goals and sources of happiness. The difference stated by ma'am, on happiness and excitement is truly worth an introspection. My third day at college, yet i feel i have learnt so much in that time.
 
+#  Day-4
+- Day four at GNDEC kicked off with a fascinating chemistry lecture from Professor Mandeep Kaur. She captivated everyone with a lively discussion about the vital role chemistry plays not only in our course, but in our everyday lives. It was an engaging session where everyone eagerly participated, sharing their thoughts and ideas with great enthusiasm.
+- Later on the Lecture was followed by Peer to Peer session where we got a wonderful opportunity to engage with our seniors and learn from them. They helped us understand the basics of coding, which was truly very helpful. The session also included some light hearted moments.
+- At 12:30, we rushed to auditorium to attend an expert lecture on Universal human values by Professor Priya Darshni. This lecture, like the previous one helped us introspect ourselves. This lecture made me feel like I have learnt so much in a day. This lecture helped us understand how the needs of self and body differs and how to find a path to happiness.
+- This insightful session was followed by Introduction to CAUSMATIC CLUB by our seniors, where we got to know about its vision and mission. This knowledge also made us appreciate the hardwork our seniors put into it and also motivated us to do the same. The session also included many fun and lighthearted moments along with creativite poems and melodious songs sung by our seniors.
+
+# Day-5
+- We were given an introductory lecture by Professor Manjot Kaur on Professional English Communication, which provided us with useful information about the course and how it aims to help us develop our skills in real world. Later on, We were provided with an opportunity to give an Introduction about ourselves which aimed to help us shed our fear of stage fright. Many of us got a chance to explore ourselves by shedding our fears.
+- We were introduced to a new subject BEEE (Basics of Electrical and Electronic Engineering) by Professor Harpreet Kaur. We were provided with an insightful knowledge on the subject and how it has its importance and relevance for Engineers, including Software Engineers.
+- During our Mathematics lecture Professor Gagandeep Kaur helped us understand the true Vision of the college and also made us understand the importance of maths for Computer Science, and the role of a true teacher.
+  
+
+
