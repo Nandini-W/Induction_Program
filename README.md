@@ -1,5 +1,5 @@
-# Induction_Program
-## Day-1 at Gndec
+## Induction_Program
+# Day-1 at Gndec
 
 - Before my first day to college truly began, I went to college Gurudwara Sahib at 8:30am to seek the blessings of God. Later on, we went to have snacks.
 - With high spirits and energy we attended Innagural Ceremony, where Mr. Harsimran Singh Jaggi introduced us to the great legacy of our college and vision behind it. Later on, we were told about motivational journeys that the two notable alumni began from our college.
@@ -10,3 +10,11 @@
  
 And fortunately it does not end just here, then we were joined in by Mr. Ashok Singla (Financial Advisor) who guided students and parents on financial matters and helped them understand how to avail student loan so that every student gets a chance to reach its full potential.
 Our day ended with us, given a chance, to experience how our live classes would feel in the coming days.
+
+# Day-2
+
+- My second day at Gndec was just as good as first day. My day began with me taking Proficiency test in English and Maths which aimed to help us identify our weak areas and work on them.
+- After the test we had a break which provided me with an opportunity to explore the college. I went to explore the college library, where I discovered books on various subjects being taught at our college. Apart from academic books I also noticed many books on literature, novels of various genres from sci-fi to fantasy fiction like Harry Potter.
+
+- Later on after break, we went to college auditorium to attend a seminar on 'Food- A Pivotal role in Student's overall wellness'  by Dr. Arashdeep Singh. This session provided us students of CSE and IT with an opportunity to understand importance of healthy eating, a disciple most of us, students lack. Apart from that, Sir also helped us clear our doubts on food and also busted myths associated with certain foods.
+- After the session, we were introduced to CAUSMATIC CLUB by our seniors, who helped us set up our account on GitHub. Also also helped us to understand it's importance.
