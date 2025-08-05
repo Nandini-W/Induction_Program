@@ -3,8 +3,8 @@
 
 - Before my first day to college truly began, I went to college Gurudwara Sahib at 8:30am to seek the blessings of God. Later on, we went to have snacks.
 - With high spirits and energy we attended Innagural Ceremony, where Mr. Harsimran Singh Jaggi introduced us to the great legacy of our college and vision behind it. Later on, we were told about motivational journeys that the two notable alumni began from our college.
--  Then we were addressed by our HoD Mrs. Harpreet Kaur Garewal who  made us understand the value of letter 'P', it holds a significant meaning in our growth in our lives. Our day begins with a Prayer, then there is Passion that motivates us to do things, then we need Patience, and then we need to have Perseverance and be Persistent in our journey to success followed by the much anticipated 'P' by us students 'Placement'.
--  Which was followed by enlightening addresses by Dr.Akshay Giddar, Dr. Parminder Singh and Dr. Sahejpal Singh who helped us better understand vision of college.
+- Then we were addressed by our HoD Mrs. Harpreet Kaur Garewal who  made us understand the value of letter 'P', it holds a significant meaning in our growth in our lives. Our day begins with a Prayer, then there is Passion that motivates us to do things, then we need Patience, and then we need to have Perseverance and be Persistent in our journey to success followed by the much anticipated 'P' by us students 'Placement'.
+- Which was followed by enlightening addresses by Dr.Akshay Giddar, Dr. Parminder Singh and Dr. Sahejpal Singh who helped us better understand vision of college.
 - Then in presence of honorable cheif guests Mr. Rakesh Kumar (who is ADC in Ludhiana) and Mr.Ravinder Garg ( who is Chief Engineer at Municipal corporation Ludhiana) we were further motivated through live examples.
 - The Innagural Cermony became a remarkable event for me, from where I got to learn so much.
  
