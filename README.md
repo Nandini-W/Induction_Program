@@ -8,7 +8,7 @@
 - Then in presence of honorable cheif guests Mr. Rakesh Kumar (who is ADC in Ludhiana) and Mr.Ravinder Garg ( who is Chief Engineer at Municipal corporation Ludhiana) we were further motivated through live examples.
 - The Innagural Cermony became a remarkable event for me, from where I got to learn so much.
  
-And fortunately it does not end just here, then we were joined in by Mr. Ashok Singla (Financial Advisor) who guided students and parents on financial matters and helped them understand how to avail student loan so that every student gets a chance to reach its full potential.
+- And fortunately it does not end just here, then we were joined in by Mr. Ashok Singla (Financial Advisor) who guided students and parents on financial matters and helped them understand how to avail student loan so that every student gets a chance to reach its full potential.
 Our day ended with us, given a chance, to experience how our live classes would feel in the coming days.
 
 # Day-2
