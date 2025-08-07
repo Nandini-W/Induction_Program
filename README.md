@@ -31,7 +31,7 @@ Our day ended with us, given a chance, to experience how our live classes would 
 
 # Day-5
 - We were given an introductory lecture by Professor Manjot Kaur on Professional English Communication, which provided us with useful information about the course and how it aims to help us develop our skills in real world. Later on, We were provided with an opportunity to give an Introduction about ourselves which aimed to help us shed our fear of stage fright. Many of us got a chance to explore ourselves by shedding our fears.
-- We were introduced to a new subject BEEE (Basics of Electrical and Electronic Engineering) by Professor Harpreet Kaur. We were provided with an insightful knowledge on the subject and how it has its importance and relevance for Engineers, including Software Engineers.
+- Then we were introduced to a new subject BEEE (Basics of Electrical and Electronic Engineering) by Professor Harpreet Kaur. We were provided with an insightful knowledge on the subject and how it has its importance and relevance for Engineers, including Software Engineers.
 - During our Mathematics lecture Professor Gagandeep Kaur helped us understand the true Vision of the college and also made us understand the importance of maths for Computer Science, and the role of a true teacher.
   
 
