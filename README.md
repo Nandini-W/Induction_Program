@@ -21,7 +21,7 @@ Our day ended with us, given a chance, to experience how our live classes would 
 # DAY-3
 - The, Third day at GNDEC for me has become a remarkable one, as today we got the most amazing opportunity to get enlightened by Dr. Jaswinder Singh (incharge of IAPT), whose wonderful and exciting perspective to education has truly left a mark on me. First and foremost,We were told about importance of prayer in our lives followed by the significance of maths in life. Though the whole session was noteworthy, what truly makes it fascinating for me, is how we were told how to count bones in human body by his invented trick.
 
-- The exciting lecture was then followed by a serious, yet truly important lecture by Dr. Priya Darshni on Universal human values. This lecture made me rethink about my goals and sources of happiness. The difference stated by ma'am, on happiness and excitement is truly worth an introspection. My third day at college, yet i feel i have learnt so much in that time.
+- The exciting lecture was then followed by a serious, yet truly important lecture by Dr. Priya Darshni on Universal human values. This lecture made me rethink about my goals and sources of happiness. The difference stated by ma'am, on happiness and excitement is truly worth an introspection. My third day at college, yet I feel I have learnt so much in that time.
 
 #  Day-4
 - Day four at GNDEC kicked off with a fascinating chemistry lecture from Professor Mandeep Kaur. She captivated everyone with a lively discussion about the vital role chemistry plays not only in our course, but in our everyday lives. It was an engaging session where everyone eagerly participated, sharing their thoughts and ideas with great enthusiasm.
