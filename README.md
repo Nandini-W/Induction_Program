@@ -17,7 +17,7 @@ Our day ended with us, given a chance, to experience how our live classes would 
 - After the test we had a break which provided me with an opportunity to explore the college. I went to explore the college library, where I discovered books on various subjects being taught at our college. Apart from academic books I also noticed many books on literature, novels of various genres from sci-fi to fantasy fiction like Harry Potter.
 
 - Later on after break, we went to college auditorium to attend a seminar on 'Food- A Pivotal role in Student's overall wellness'  by Dr. Arashdeep Singh. This session provided us students of CSE and IT with an opportunity to understand importance of healthy eating, a disciple most of us, students lack. Apart from that, Sir also helped us clear our doubts on food and also busted myths associated with certain foods.
-- After the session, we were introduced to CAUSMATIC CLUB by our seniors, who helped us set up our account on GitHub. Also also helped us to understand it's importance.
+- After the session, we were introduced to CAUSMATIC CLUB by our seniors, who helped us set up our account on GitHub. And also helped us to understand it's importance.
 # DAY-3
 - The, Third day at GNDEC for me has become a remarkable one, as today we got the most amazing opportunity to get enlightened by Dr. Jaswinder Singh (incharge of IAPT), whose wonderful and exciting perspective to education has truly left a mark on me. First and foremost,We were told about importance of prayer in our lives followed by the significance of maths in life. Though the whole session was noteworthy, what truly makes it fascinating for me, is how we were told how to count bones in human body by his invented trick.
 
