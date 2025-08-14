@@ -42,5 +42,7 @@ Our day ended with us, given a chance, to experience how our live classes would 
 - After that, Dr. Lakhvir Singh Khanna made us aware about the CML club which stands for Centre for Multi Faceted Learning. He told us about its mission and vision.
 
   
+# Day-7
+- Our day began in auditorium with an insightful lecture by Dr.Amit Kamra. Followed by a session by Dr. Parminder Singh. And later on, Dr. Randhir Singh explained to us conduct of examination. Today's sessions provided us with more clarity on various important topics that we were keen to know about be it about academics or clubs.
 
 
