@@ -44,5 +44,8 @@ Our day ended with us, given a chance, to experience how our live classes would 
   
 # Day-7
 - Our day began in auditorium with an insightful lecture by Dr.Amit Kamra. Followed by a session by Dr. Parminder Singh. And later on, Dr. Randhir Singh explained to us conduct of examination. Today's sessions provided us with more clarity on various important topics that we were keen to know about be it about academics or clubs.
-
+# Day -8
+- Today, day at GNDEC began with a BEEE lecture in which we revised our previous concepts, to build a strong foundation for upcoming lessons. The Lecture happened to be very interesting and helpful.
+- Then later on, Professor Karan Bhalla gave us an introduction and engaged with us, students in an interesting way, and then cleared our doubts on academic criterias and helped us revised previous concepts.
+- 
 
