@@ -33,6 +33,14 @@ Our day ended with us, given a chance, to experience how our live classes would 
 - We were given an introductory lecture by Professor Manjot Kaur on Professional English Communication, which provided us with useful information about the course and how it aims to help us develop our skills in real world. Later on, We were provided with an opportunity to give an Introduction about ourselves which aimed to help us shed our fear of stage fright. Many of us got a chance to explore ourselves by shedding our fears.
 - Then we were introduced to a new subject BEEE (Basics of Electrical and Electronic Engineering) by Professor Harpreet Kaur. We were provided with an insightful knowledge on the subject and how it has its importance and relevance for Engineers, including Software Engineers.
 - During our Mathematics lecture Professor Gagandeep Kaur helped us understand the true Vision of the college and also made us understand the importance of maths for Computer Science, and the role of a true teacher.
+
+
+#Day -6
+- Today, I finally understood the basics of C++, under the guidance of our most wonderful seniors, who helped us clear our doubts and understand the concept behind it. Just like the previous session, this session too, was filled with fun and knowledge. 
+- Then later on, it was followed by an energetic lecture by Professor Jaswant Singh, who gave us an opportunity to have an open discussion, and help us understand our true motive for opting this branch.
+- After a refreshing break of one hour, we were introduced with college committee head Mr. Gurcharan Singh Garewal, who introduced us to the true spirit of GNDEC and the role it  will play in our life. Then he later shared with us his remarkable journey that he took from this college.
+- After that, Dr. Lakhvir Singh Khanna made us aware about the CML club which stands for Centre for Multi Faceted Learning. He told us about its mission and vision.
+
   
 
 
