@@ -35,7 +35,7 @@ Our day ended with us, given a chance, to experience how our live classes would 
 - During our Mathematics lecture Professor Gagandeep Kaur helped us understand the true Vision of the college and also made us understand the importance of maths for Computer Science, and the role of a true teacher.
 
 
-#Day -6
+# Day -6
 - Today, I finally understood the basics of C++, under the guidance of our most wonderful seniors, who helped us clear our doubts and understand the concept behind it. Just like the previous session, this session too, was filled with fun and knowledge. 
 - Then later on, it was followed by an energetic lecture by Professor Jaswant Singh, who gave us an opportunity to have an open discussion, and help us understand our true motive for opting this branch.
 - After a refreshing break of one hour, we were introduced with college committee head Mr. Gurcharan Singh Garewal, who introduced us to the true spirit of GNDEC and the role it  will play in our life. Then he later shared with us his remarkable journey that he took from this college.
